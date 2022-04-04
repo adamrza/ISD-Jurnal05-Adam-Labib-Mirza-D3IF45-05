@@ -1,1 +1,3 @@
-# ISD-Jurnal05-Adam-Labib-Mirza-D3IF45-05
+Adam Labib Mirza
+6706313124
+D3IF45-05
